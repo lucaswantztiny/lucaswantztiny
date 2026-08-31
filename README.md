@@ -1,1 +1,1 @@
-Perfil de trabalho na Tiny ERP.
+Perfil de trabalho na Olist.
